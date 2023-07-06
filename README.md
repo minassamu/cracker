@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @minassamu
+- 👋 Hi, I’m @cracker
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning science in school
 
